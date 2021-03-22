@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @qian
+- 👋 Hi, I’m Qian!
 - 👀 I’m studying painting & architecture
 - 🌱 I’m currently a Junior student at the School of Art Institute of Chicago
 - 📫 email:qianxu0418@gmail.com
