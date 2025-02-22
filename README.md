@@ -1,6 +1,5 @@
 -  Hi, I’m Qian!
-- I’m studying painting & architecture
-- I’m currently a Junior student at the School of Art Institute of Chicago
+- Designer based in Los Angeles
 - email:xuqian0418@gmail.com
 
 <!---
